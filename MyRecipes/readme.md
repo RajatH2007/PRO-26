@@ -1,1 +1,0 @@
-This is a recipe to make easy fried rice(in pressure cooker).
